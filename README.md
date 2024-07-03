@@ -1,0 +1,1 @@
+# Analysis-ocean-parameter-for-forcasting-map-of-fishing-base-on-Decapterus-Sp
